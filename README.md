@@ -9,4 +9,4 @@ I am Prasanna Kotyal from India, an AI and ML engineer and enthusiast. I love us
 
 
 
-My Linkedin - [prasannakotyal](https://www.linkedin.com/in/prasanna-kotyal/)\
+My Linkedin - [prasannakotyal](https://www.linkedin.com/in/prasanna-kotyal/)
